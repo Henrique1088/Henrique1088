@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Henrique1088, aka Hique
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning about the digital world
+- 💞️ I’m not looking to collaborate
+- 📫 There's no way to reach me...
+- 😄 Pronouns: he/him-stoo/pid
+- ⚡ Fun fact: I work out
